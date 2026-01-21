@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **mohdhussainkhan.ds@gmail.com** For Collaboration/Project 
 - 🌱 **I’m currently learning:** Data Scientist Skills
 - 👯 **I’m looking to collaborate on:** Finance | Retail | Medical
 - 🤔 **I’m looking for help with:** Professional Connections
-- 📫 **How to reach me:** mohdhussainkhan.ds@gmail.com
+- 📫 **How to reach me:** mohdhussain-khan | mohdhussainkhan.ds@gmail.com 
 - 😄 **Pronouns:** Mohd Hussain
 - ⚡ **Fun fact:** Less magic, more math
 -->
